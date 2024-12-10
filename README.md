@@ -1,6 +1,6 @@
 
 # **Redan Esconde**
-***Technology Leader***
+***Technology Leader | Engineering Manager***
 
 
 
